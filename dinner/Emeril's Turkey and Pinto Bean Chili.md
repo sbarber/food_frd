@@ -1,5 +1,6 @@
 Emeril's Turkey & Pinto Bean Chili
 ----------------------------------
+Source: http://www.marthastewart.com/851793/emerils-turkey-and-pinto-bean-chili
 
 ### Ingredients
 * 4 slices thick-cut bacon, diced small
