@@ -1,6 +1,6 @@
 Becky's Gluten-free Chocolate Cake
 ----------------------------------
-Original Source: http://chocolateandcarrots.com/2011/02/secret-ingredient-chocolate-peanut-butter-cake
+Adapted From: http://chocolateandcarrots.com/2011/02/secret-ingredient-chocolate-peanut-butter-cake
 
 ### Ingredients
 * 1 (15.5 oz) can of black beans, drained and rinsed

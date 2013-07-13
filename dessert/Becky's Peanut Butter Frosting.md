@@ -1,6 +1,6 @@
 Becky's Peanut Butter Frosting
 ------------------------------
-Original Source: http://www.bettycrocker.com/recipes/easy-peanut-butter-frosting/3b3b77bb-939a-4607-bd0f-428f1876903f
+Adapted From: http://www.bettycrocker.com/recipes/easy-peanut-butter-frosting/3b3b77bb-939a-4607-bd0f-428f1876903f
 
 ### Ingredients
 * 1 cup butter or margarine, softened
