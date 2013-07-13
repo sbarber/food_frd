@@ -1,6 +1,6 @@
 Bestest Chocolate Chip Cookies
 ------------------------------
-Source: America's Test Kitchen? (Unverified)
+Original Source: America's Test Kitchen? (Unverified)
 
 ### Ingredients
 * 3-1/3 cups all-purpose flour
