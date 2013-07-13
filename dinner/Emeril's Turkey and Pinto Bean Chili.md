@@ -17,5 +17,11 @@ Source: http://www.marthastewart.com/851793/emerils-turkey-and-pinto-bean-chili
 * 2 tablespoons finely chopped fresh cilantro
 
 ### Directions
-* In a large Dutch oven or other heavy pot, cook bacon over medium-high, stirring occasionally, until fat is rendered and bacon is crisp, about 8 minutes. Add onions and bell pepper and cook, stirring occasionally, until vegetables soften, about 3 minutes. Add turkey, chili powder, cumin, garlic, and oregano and cook, breaking up meat with a wooden spoon, until cooked through and lightly browned, 6 to 8 minutes. Season with salt and pepper.
-* Add tomatoes and juice, beans, and 2 cups water. Bring to a boil. Reduce to a rapid simmer, partially cover, and cook, stirring occasionally, until sauce thickens, 20 minutes. (To store, refrigerate cooled chili in an airtight container, up to 3 days.) Serve topped with cilantro.
+* In a large Dutch oven or other heavy pot, cook bacon over medium-high, stirring occasionally, until fat is rendered and bacon is crisp, about 8 minutes.
+* Add onions and bell pepper and cook, stirring occasionally, until vegetables soften, about 3 minutes.
+* Add turkey, chili powder, cumin, garlic, and oregano and cook, breaking up meat with a wooden spoon, until cooked through and lightly browned, 6 to 8 minutes. Season with salt and pepper.
+* Add tomatoes and juice, beans, and 2 cups water. Bring to a boil. Reduce to a rapid simmer, partially cover, and cook, stirring occasionally, until sauce thickens, 20 minutes.
+* Serve topped with cilantro.
+
+### Notes
+* To store, refrigerate cooled chili in an airtight container, up to 3 days
